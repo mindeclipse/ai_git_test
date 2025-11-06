@@ -11,3 +11,5 @@
 
 ## Моя мета
 Опанувати базу і постійно розвиватися в цій сфері, здобути офер
+
+> "The measure of intelligence is the ability to change."
